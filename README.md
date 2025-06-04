@@ -1,1 +1,2 @@
-- My name is angel and I am looking for new things to learn
+Hello, friend!
+I am here to learn new things and gain experience ✨️ 
